@@ -1,4 +1,4 @@
-ello World, I'm Neckless 💜
+ello World, I'm berat 💜
 GIF
 
 I am a discord bot developer with a keen eye for details, seeking to advance my growing tech career as a Software Developer and bringing my trouble shooting skills to engineer responsive solutions along with like-minded peers.
